@@ -1,2 +1,0 @@
-# uykusuz
-asdasdasd
